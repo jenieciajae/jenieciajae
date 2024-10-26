@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jenieciajae
+- 👀 I’m interested in front end developing and anime
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I have a pet snake :)
